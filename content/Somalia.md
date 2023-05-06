@@ -13,7 +13,7 @@ Nel 1969 dopo l'assassino del presidente Abdirashid Ali Shermarke il Generale Si
 
 Per 22 anni resta al potere -anche grazie al supporto di Stati Uniti d'America e Unione Sovietica- disegnando i contorni della Somalia Moderna e investendo ingenti risorse nella creazione di uno dei più grandi eserciti in Africa.
 
-Nel 1988  le tribù del nord (cioè gli abitanti dei territori dell'ex British Somalia) spinte dall'Etiopia si ribellano allo strapotere del Generale Barre, la risposta è durissima e muoiono in migliaia.
+Nel 1988  le tribù del nord (gli abitanti dei territori dell'ex British Somalia) spinte dall'Etiopia si ribellano allo strapotere del Generale Barre, la risposta è durissima e muoiono in migliaia.
 
 I sentimenti di opposizione si fanno crescenti e finalmente nel 1991, ancora grazie alla spinta etiope, le popolazioni del nord e quelle del sud insorgono contro Barre.
 Il potere del generale inzia a indebolirsi, il gruppo di fidati a lui più vicini si sgretola e Barre viene finalmente spodestato.
