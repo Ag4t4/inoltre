@@ -6,7 +6,7 @@ draft: false
 
 ---
 
-Nelle ultime settimane si è tornati a parlare di Somalia. Per capire meglio il contesto delle notizie risulta utile fare un breve riassunto degli avvenimenti degli utlimi decenni:
+Nelle ultime settimane si è tornato a parlare di Somalia. Per capire meglio il contesto delle notizie risulta utile fare un breve riassunto degli avvenimenti degli utlimi decenni:
 
 La Somalia è uno stato dell'Africa orientale situato nel corno d'Africa, la sua storia moderna ruota attorno alle svolte avvenute nei due decenni tra il 1960 e il 1980. L'indipendeza da Italia e Gran Bretagna nel 1960, quasi un decennio di democrazia e libere elezioni fino al 1969, la dittatura militare inziata nel 1970 e proseguita negli anni '80 che si è tradotta in un declino continuo e disperato verso caos e guerra civile. 
 Nel 1969 dopo l'assassino del presidente Abdirashid Ali Shermarke il Generale Siad Barre prende il potere con un colpo di stato militare. 
