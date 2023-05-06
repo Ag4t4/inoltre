@@ -25,8 +25,10 @@ Il caos continuo è terreno fertile per il terrorismo e nel 2006 nasce Al-Shabaa
 L'ingresso dell'Isis nel paese (databile al 2012) genera nuovi squilibri e lo scontro tra le due cellule terroristiche allarga il perimetro del terrore.
 Gli attentati si moltiplicano, la guerra civile prosegue incessantemente e i cambiamenti climatici producono carestie senza precedenti.
 
-L'emergenza umanitaria riguarda milioni di persone e non è un caso il complesso di campi profughi ritenuto più grande nel mondo sia proprio in Somalia.
+L'emergenza umanitaria riguarda milioni di persone e non è un caso che il complesso di campi profughi ritenuto più grande nel mondo sia proprio in Somalia.
 
-Si tratta di un agglomerato di tre distinti campi situati nella stessa area nel Nord del Kenya che ospitano oggi circa 218mila persone, all'apice dell'emergenza nel 2011 il numero di occupanti è arrivato fino 330mila.
+Si tratta di un agglomerato di tre distinti campi situati nella stessa area nel Nord del Kenya che ospitano oggi circa 218mila persone, all'apice dell'emergenza nel 2011 il numero di occupanti è arrivato a 330mila.
 
 La stima del numero totale di sfollati al 2022 è di 1.8milioni di persone.
+
+Il presente elenco di avvenimenti non è da ritenersi esaustivo. Ha il solo scopo di dare un'idea di massima su quanto accaduto negli utlimi decenni.
